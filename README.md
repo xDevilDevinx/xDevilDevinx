@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me My discord server (its in the Youtube channel)
-- 😄 Pronouns: femboy
+- 😄 Pronouns: man
 - ⚡ Fun fact: modding is hard
 
 <!---
